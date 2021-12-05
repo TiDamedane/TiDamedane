@@ -1,2 +1,2 @@
 # damedane
-a cat who sleep and play computer everyday
+cat, cat, just a cat, play computer everyday.
